@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 JANGAN DICOLONG BANG:
 didiemin malah diem
 
 
