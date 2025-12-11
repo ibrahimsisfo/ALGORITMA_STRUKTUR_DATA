@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 JANGAN DICOLONG BANG:
 Suka Josu, Bakwan, Jagung, Messi, Rossi, Money, Biru, Momoshiki Dan Kamuuu Heheh <br>Galung Tulu, 11-06-2006
 
 
